@@ -2,12 +2,12 @@
 
 Undergraduate student at SLIIT
 
-## **About me**
+# **About me**
 
 I am a creative person with a keen interest to one day change the world! Passionate animal and nature lover.
 
 
-### **Educational Qualifications**
+# **Educational Qualifications**
 
 -Bsc(Hons) in Biotechnology at Sri Lanka Institute of Information Technology
 -Completed London(Cambridge) A/Levels and O/Levels at Lyceum International School, Nugegoda

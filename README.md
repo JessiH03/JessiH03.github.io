@@ -14,7 +14,7 @@ Passionate nature and animal lover.
 
 Currently an undergraduate student at SLIIT studying biotechnology.
 
-![WhatsApp Image 2021-08-01 at 18 50 25 (2)](https://user-images.githubusercontent.com/90723534/135535220-7f41fdc6-39ad-4e5b-81f1-83aa7dc605f9.jpeg)
+![DSC00008 (4)](https://user-images.githubusercontent.com/90723534/135535512-f908141c-61e3-4589-afbf-2860f3524265.jpg)
 
 # **Educational Qualifications**
 

@@ -37,7 +37,7 @@ I enjoy learning new things and I am constantly searching for new opportunities 
 
 # **Resume**
 
-file:///C:/Users/Jessica/Downloads/HS21914096_%20Jessica%20Hassan%20(6).pdf
+[Your Link Here](file:///C:/Users/Jessica/Downloads/HS21914096_%20Jessica%20Hassan%20(6).pdf)
 
 # **Contact Details**
 

@@ -12,7 +12,7 @@ I enjoy learning new things and I am constantly searching for new opportunities 
 
 Passionate nature and animal lover.
 
-Currently an undergraduate student at SLIIT studying biotechnology.
+Currently an undergraduate student at SLIIT, studying biotechnology.
 
 ![DSC00008 (4)](https://user-images.githubusercontent.com/90723534/135535512-f908141c-61e3-4589-afbf-2860f3524265.jpg)
 

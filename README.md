@@ -28,6 +28,8 @@ Attention to detail
 
 Organizational skills
 
+Technical proficiency in MS Word,Excel and Powerpoint
+
 # **Hobbies**
 
 Photography

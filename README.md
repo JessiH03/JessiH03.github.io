@@ -40,7 +40,7 @@ Playing instrumental music
 
 # **Resume**
 
-[Link to my resume](https://mysliit-my.sharepoint.com/personal/hs21914096_my_sliit_lk/_layouts/15/onedrive.aspx?id=%2Fpersonal%2Fhs21914096%5Fmy%5Fsliit%5Flk%2FDocuments%2FSLIIT%2FSemester%201%2FIntro%20to%20IT%2FMS%20word%20assignment%201%2FResume%204%20%2Epdf&parent=%2Fpersonal%2Fhs21914096%5Fmy%5Fsliit%5Flk%2FDocuments%2FSLIIT%2FSemester%201%2FIntro%20to%20IT%2FMS%20word%20assignment%201)
+[View my resume](https://mysliit-my.sharepoint.com/personal/hs21914096_my_sliit_lk/_layouts/15/onedrive.aspx?id=%2Fpersonal%2Fhs21914096%5Fmy%5Fsliit%5Flk%2FDocuments%2FSLIIT%2FSemester%201%2FIntro%20to%20IT%2FMS%20word%20assignment%201%2FResume%204%20%2Epdf&parent=%2Fpersonal%2Fhs21914096%5Fmy%5Fsliit%5Flk%2FDocuments%2FSLIIT%2FSemester%201%2FIntro%20to%20IT%2FMS%20word%20assignment%201)
 
 # **Contact Details**
 

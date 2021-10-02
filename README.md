@@ -18,7 +18,7 @@ Currently an undergraduate student at SLIIT, studying biotechnology.
 
 Bsc(Hons) in Biotechnology at Sri Lanka Institute of Information Technology (SLIIT). 2021-2025
 
-Studied at Lyceum International School Nugegoda for 12 years,completed London(Cambridge) O Levels in 2018 and A levels in 2020. 
+Studied at Lyceum International School Nugegoda for 12 years. Completed London(Cambridge) O Levels in 2018 and A levels in 2020. 
 
 # **Other Skills**
 
